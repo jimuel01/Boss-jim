@@ -1,0 +1,1 @@
+Hi I am jimuel Inovejas, I came from Bansud Oriental Mindoro and I studying my elementary and high schoool here in my province, but for now I graduated college in Rizal Technological University with the coursed of Bachelor of Science in Electrical Engineering.My hobby is playing basketball and listening a music when I am stress and bored.That's all thank you.!!!
